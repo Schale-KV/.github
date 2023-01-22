@@ -1,4 +1,3 @@
-미카랭 제작 예정
-와오
+1/22 미카 실장 
 
-![미카짱](https://i3.ruliweb.com/ori/22/08/11/182887015af47f111.jpg)
+[미카 소개영상](https://youtu.be/thuPzV81l2E)
